@@ -63,7 +63,7 @@ Elaborat pel **grup 6** a la sessió del Servei de Formació Permanent del Profe
 
 ## Il·lustració de Talaia
 
-Dibuix a llapis inspirat en les torres de defensa de Formentera, proposat com a símbol de Talaia. Concepte i direcció: Carmen Moles, CEP de Formentera, 2026. No és un logotip oficial del Servei. Llicència CC BY-NC 4.0.
+Dibuix a llapis inspirat en les torres de defensa de les Illes Balears, proposat com a símbol de Talaia. Concepte i direcció: Carmen Moles, CEP de Formentera, 2026. No és un logotip oficial del Servei. Llicència CC BY-NC 4.0.
 
 ## Llicència
 
