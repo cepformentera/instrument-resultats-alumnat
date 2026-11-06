@@ -63,7 +63,7 @@ Elaborat pel **grup 6** a la sessió del Servei de Formació Permanent del Profe
 
 ## Il·lustració de Talaia
 
-Dibuix a llapis inspirat en les torres de defensa de les Illes Balears, proposat com a símbol de Talaia. Concepte i direcció: Carmen Moles, CEP de Formentera, 2026. No és un logotip oficial del Servei. Llicència CC BY-NC 4.0.
+Il·lustració a llapis i aquarel·la de la Torre des Garroveret, la talaia del Cap de Barbaria, amb el far des Cap de Barbaria i la mar Mediterrània al fons. Proposada com a símbol de Talaia. Concepte i direcció: Carmen Moles, CEP de Formentera, 2026. No és un logotip oficial del Servei. Llicència CC BY-NC 4.0.
 
 ## Llicència
 
